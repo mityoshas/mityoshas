@@ -7,10 +7,10 @@
 
 𐔌  . i am an artist, game dev, character designer, 3d modeller, etc etc
 
-ᰍ﹕usually in the genshin area !! feel free to int, may not respond however⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-happy 2 roleplay but i wont take it seriously !!⠀⠀. 𐑞⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ᰍ﹕usually in the genshin area !! feel free to int, may not respond however⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+happy 2 roleplay but i wont take it seriously !!⠀⠀. 𐑞⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⟡　៹ illuhen scarabedo kazuscara xingyun mityosha dottolone int ,,⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⟡　៹ illuhen scarabedo kazuscara xingyun mityosha dottolone int ,,⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ❌❌❌❌❌romantic varhen, makes me very uncomfortable ! platonic is okay however !!
 
  ˳  ꒱　　byi i am autistic, and am very blunt (unintentionally) !!!
