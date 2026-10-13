@@ -3,15 +3,25 @@
 <img width="840" height="66![Uploading tumblr_391d9c77625d1ad3c0d6536eb56e93fb_bc9c94e8_400.png…]()
 " alt="tumblr_3681a0412c13fb5ed263ecbda8e2d6a8_833f0bc3_400" src="https://github.com/user-attachments/assets/7ea8cd83-9959-42e2-bf6e-ae23888d99dd" />
 
+── .✦
+  
   🏹𓏼 ੭  gabe/gabriel ˚ 　⟢‹ ︎ he/him⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 𐔌  . i am an artist, game dev, character designer, 3d modeller, etc etc
 
-ᰍ﹕usually in the genshin area !! feel free to int, may not respond however⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-happy 2 roleplay but i wont take it seriously !!⠀⠀. 𐑞⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+— ˗ˋ ୨୧ ˊ˗ —
 
-⟡　៹ illuhen scarabedo kazuscara xingyun mityosha dottolone int ,,⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ᰍ﹕usually in the genshin area !! feel free to int, may not respond however
+
+happy 2 roleplay but i wont take it seriously !!⠀⠀. 𐑞
+
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+
+⟡　៹ illuhen scarabedo kazuscara xingyun mityosha dottolone int ,,
+
 ❌❌❌❌❌romantic varhen, makes me very uncomfortable ! platonic is okay however !!
+
+— ˗ˋ ୨୧ ˊ˗ —
 
  ˳  ꒱　　byi i am autistic, and am very blunt (unintentionally) !!!
 
