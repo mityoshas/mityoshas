@@ -21,6 +21,8 @@ happy 2 roleplay but i wont take it seriously !!⠀⠀. 𐑞
 
 ❌❌❌❌❌romantic varhen, makes me very uncomfortable ! platonic is okay however !!
 
+dni any durin ships aswell!!!, i very much see him as (atleast mentally) a child, & am very very uncomfortable with any ships regarding him
+
 — ˗ˋ ୨୧ ˊ˗ —
 
  ˳  ꒱　　byi i am autistic, and am very blunt (unintentionally) !!!
